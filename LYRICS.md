@@ -56,6 +56,13 @@ Mes partenaires de glisse, désolé si je m'immisce
 
 ******************************************************
 
+Mais laisse pas traîner ton fils
+Si tu ne veux pas qu'il glisse
+Qu'il te ramène du vice
+Laisse pas traîner ton fils
+Si tu veux pas qu'il glisse
+*******************************************************
+
 Que voulais-tu que ton fils apprenne dans la rue?
 Quelles vertus croyais-tu qu'on y enseigne?
 Mais t'as pas vu comment ça pue dehors
@@ -74,3 +81,6 @@ D'esquives, des "shta-pow!" de putains de stonba
 Laisse pas traîner ton fils
 Si tu veux pas qu'il glisse
 Qu'il te ramène du vice
+
+*****************************************************************
+
